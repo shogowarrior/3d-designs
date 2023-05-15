@@ -1,0 +1,1 @@
+Alternative Stand for Designer Lithophane Moon Lamp by maciejb on Thingiverse: https://www.thingiverse.com/thing:4679167
