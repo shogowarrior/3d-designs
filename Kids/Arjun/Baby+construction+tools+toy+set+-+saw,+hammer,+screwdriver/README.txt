@@ -1,1 +1,0 @@
-{Baby construction tools toy set - saw, hammer, screwdriver %!s(bool=true)} by {kozakm %!s(bool=true)} on Thingiverse: https://www.thingiverse.com/thing:4070791

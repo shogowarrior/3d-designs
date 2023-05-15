@@ -1,1 +1,0 @@
-Flexi Articulated Monkey by fixumdude on Thingiverse: https://www.thingiverse.com/thing:4176016

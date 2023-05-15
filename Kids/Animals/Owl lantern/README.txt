@@ -1,1 +1,0 @@
-La chouette lampe (the owlantern) by OutOfPluto3D on Thingiverse: https://www.thingiverse.com/thing:4838108

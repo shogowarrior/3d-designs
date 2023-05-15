@@ -1,1 +1,0 @@
-Articulated Snake v8 (bigger head) - Reupload by TechnicaL50 on Thingiverse: https://www.thingiverse.com/thing:5029537

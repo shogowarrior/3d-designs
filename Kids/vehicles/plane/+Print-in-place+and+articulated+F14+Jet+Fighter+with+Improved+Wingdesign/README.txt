@@ -1,1 +1,0 @@
- Print-in-place and articulated F14 Jet Fighter with Improved Wingdesign by agepbiz on Thingiverse: https://www.thingiverse.com/thing:4978409
