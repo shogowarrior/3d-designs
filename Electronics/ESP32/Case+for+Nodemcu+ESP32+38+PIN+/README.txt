@@ -1,0 +1,1 @@
+Case for Nodemcu ESP32 38 PIN  by josemabcn on Thingiverse: https://www.thingiverse.com/thing:4816198

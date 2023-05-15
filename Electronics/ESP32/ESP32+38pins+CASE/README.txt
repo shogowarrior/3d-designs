@@ -1,0 +1,1 @@
+ESP32 38pins CASE by Ljubomir on Thingiverse: https://www.thingiverse.com/thing:4193576

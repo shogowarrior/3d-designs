@@ -1,0 +1,1 @@
+32x8 LED Matrix grid with diffuser by TRSATOC on Thingiverse: https://www.thingiverse.com/thing:4309771
